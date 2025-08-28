@@ -5,6 +5,7 @@
 Seja bem-vindo ao meu espaço! Aqui compartilho um pouco de quem eu sou, do que acredito e do que me move todos os dias.
 
 🌟 Sobre mim
+📚formado me : Rotinas administrativas, informatica basica /avançada,
 
 📚 Sou um cara estudioso, sempre buscando aprender coisas novas, porque acredito que o conhecimento é uma chave poderosa para o futuro.
 
